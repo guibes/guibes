@@ -11,7 +11,7 @@ I'm a Digital Nomad Travelling the world, I have travelled almost 40 countries, 
 [Instagram](https://www.instagram.com/guibesgeovane/)
 
 
-- More about my job:
+# More about my job
 
 **My Stats**
 
